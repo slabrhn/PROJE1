@@ -1,4 +1,4 @@
-Hey , I,m Sila BURHAN.
+Hey , I'm Sila BURHAN.
 
 I'm a food engineer , also I  am interested in data analysis.
 
